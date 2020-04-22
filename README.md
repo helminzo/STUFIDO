@@ -1,2 +1,2 @@
 # STUFIDO
-this is just stuf i do. sudoku here tho.
+this is just stuf i(helmin) do. sudoku here tho.
