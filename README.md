@@ -1,2 +1,2 @@
 # STUFIDO
-this is just stuf i do. most of it is private. but bleh
+this is just stuf i do. sudoku here tho.
